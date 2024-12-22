@@ -66,7 +66,7 @@ _🔹 July 2021 – Present_
 
 ## 📫 Contact  
 - **📧 Email:** [andrea.munarin00@gmail.com]  
-- **🔗 LinkedIn:** [andrea-munarin](https://www.linkedin.com/in/andrea-munarin-0b142121b/)  
+- **🔗 LinkedIn:** [andrea-munarin](https://www.linkedin.com/in/andrea-munarin/)  
 
 ---  
 
